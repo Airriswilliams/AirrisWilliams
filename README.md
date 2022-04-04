@@ -11,7 +11,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/Airriswilliams](https://github.com/Airriswilliams)
 
-- ⚡ Fun fact [I worked at San Quentin State Prison for 5 years!](I worked at San Quentin State Prison for 5 years!)
+- ⚡ Fun fact I worked at San Quentin State Prison for 5 years!
 
 - 💬 Ask me about **anything**
 
